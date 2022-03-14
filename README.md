@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 ####  Samsung SW Academy For Youth - 5th
 
-  #####  - 2021.01 ~ now 
+  #####  - 2021.01 ~ 2021.12 
 
 ------------
 
